@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **humbertocm10@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1yyBYQtHzQ49gFMFEkhx5OfDgSanBfBZEJFFKXMenD7g/edit?usp=sharing](https://docs.google.com/document/d/1yyBYQtHzQ49gFMFEkhx5OfDgSanBfBZEJFFKXMenD7g/edit?usp=sharing)
+- 📄 My Resume [https://docs.google.com/document/d/1yyBYQtHzQ49gFMFEkhx5OfDgSanBfBZEJFFKXMenD7g/edit?usp=sharing](https://docs.google.com/document/d/1yyBYQtHzQ49gFMFEkhx5OfDgSanBfBZEJFFKXMenD7g/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
